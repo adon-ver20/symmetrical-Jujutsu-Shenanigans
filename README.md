@@ -2,7 +2,7 @@
 
 [![Jujutsu Shenanigans Script 2025 Banner](https://i.postimg.cc/brL14xX8/11.jpg)](https://postimg.cc/gLXwZ6kB)
 
-# Jujutsu Shenanigans Script 2025 | Unlimited Stamina Kill Aura Auto Combo Speed Fly God Mode Unlock All Movesets Domains | Jujutsu Shenanigans Script Undetected December 2025
+# Jujutsu Shenanigans Script 2026 | Unlimited Stamina Kill Aura Auto Combo Speed Fly God Mode Unlock All Movesets Domains | Jujutsu Shenanigans Script Undetected December 2026
 
 ![Version](https://img.shields.io/badge/Version-2025.12.20-9400D3?style=for-the-badge&logo=roblox&logoColor=white)
 ![Status](https://img.shields.io/badge/Status-UNDETECTED%20100%25-success?style=for-the-badge)
